@@ -2,7 +2,7 @@
 - 🏫  Estudante do CCM Manoel Ribas 
 - 15 anos
 - @Menegusso_07
-- Sub 20 do Batel⚽
+- Sub 20 do Batel⚽✍
 
 
 
